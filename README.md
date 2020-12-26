@@ -1,4 +1,4 @@
-# Village-of-Lost-Rocks
+# Village of Lost Rocks
 
 Mystery | History | Preservation
 
